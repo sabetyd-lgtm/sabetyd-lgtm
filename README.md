@@ -1,4 +1,4 @@
-# Hi, I'm Darian 👋
+i'm dariannnn :)
 
 I work in business analysis and operations at a family office in Rancho Santa
 Fe, California, with holdings in construction, real estate development, and
